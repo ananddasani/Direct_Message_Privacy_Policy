@@ -1,6 +1,6 @@
 **Privacy Policy**
 
-Developer Anand built the Direct WhatsApp app as a Free app. This SERVICE is provided by Developer Anand at no cost and is intended for use as is.
+Developer Aanand built the Direct WhatsApp app as a Free app. This SERVICE is provided by Developer Aanand at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
